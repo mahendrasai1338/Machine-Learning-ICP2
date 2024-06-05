@@ -4,4 +4,4 @@ Student Name: Mahendra Sainadh Misra Yeminedi
 
 Student Id :700765391
 
-video link : https://1drv.ms/u/s!AuyZPM4CD8kRhko5ZdWbNEG9-spU?e=U7NOF8
+video link : https://drive.google.com/file/d/1dbaaLPI9hIWibwjl18AJ1DFew5FTmpmi/view?usp=drive_link
